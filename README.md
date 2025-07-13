@@ -8,7 +8,7 @@
 
 ## COMMUNITY ORGANIZER
 ### 2021-2023 | COLORADO CROSS-DISABILITY COALITION | DENVER, CO
-- Spearheaded efforts to engage monolingual Spanish-speaking communities, increasing CCDC membership from communities of color by over 10%.
+Spearheaded efforts to engage monolingual Spanish-speaking communities, increasing CCDC membership from communities of color by over 10%.
 - Established Grupo MAS, CCDC’s first chapter for Spanish-monolingual members, building Leadership among local advocates and expanding community influence.
 - Developed bilingual and Spanish-language campaigns, including Medicaid training sessions and advocacy meetings, empowering underserved families to access critical services.
 
